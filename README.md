@@ -6,7 +6,7 @@
 
 Предыдущий урок: stolbitsa.com/stolbitsa/subdominant-low-4
 
-Также рекомендуем пройти этот урок: stolbitsa.com/stolbitsa/subdominant-harmonic-low-1-5-4
+Также рекомендуем пройти этот урок:  ![](https://github.com/user-attachments/assets/6633b97c-f2bf-4b5b-b70f-565686afd2dc  =50x200)  stolbitsa.com/stolbitsa/subdominant-harmonic-low-1-5-4
 <br><br>
 
 <span id="en"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
@@ -17,5 +17,5 @@
 
 Previous lesson: stolbitsa.com/stolbitsa/subdominant-low-4
 
-We also recommend taking this lesson: stolbitsa.com/stolbitsa/subdominant-harmonic-low-1-5-4<br><br>
+We also recommend taking this lesson: ![](https://github.com/user-attachments/assets/6633b97c-f2bf-4b5b-b70f-565686afd2dc  =50x200) stolbitsa.com/stolbitsa/subdominant-harmonic-low-1-5-4<br><br>
 
